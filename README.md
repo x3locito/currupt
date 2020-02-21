@@ -1,0 +1,2 @@
+# currupt
+fuck ur servers 
